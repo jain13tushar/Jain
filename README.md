@@ -1,1 +1,1 @@
-# LI-FI AND IT’S USES IN VARIOUS APPLICATIONS
+# LI-FI and it's uses in Various Applications
